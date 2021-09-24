@@ -1,2 +1,1 @@
-
-hellogi
+Hello my name is Jarae and I am 19 and I like to code and learn new things. I was born in Brooklyn and I lve in Newark. My favorite food is Chopped cheese and I hate candycorn.
